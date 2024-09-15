@@ -56,3 +56,7 @@ It is pertinent to recap a few of the things that the awesome Volunteers of the 
 - We specifically wish to thank all who are painstakingly taking Vocational and Digital Skill Acquisition very seriously in Ngwo. These persons have created avenues to bring these skills as real deals to our children at the lowest level possible. Worthy of mention are *Engr Mrs Chidinma Ugwu (Grandma's Touch Services), Mr Thompson Ani, Rev Chimaobi and Uncle Kanayo Ani*. That's the way to go Guys!!! 👍 We have and will always love to keep supporting and associating with you.
 
 - The Scholarship Recipients are listed [here](https://docs.google.com/spreadsheets/d/1OW86DaozSGLWa1x_RFpHHuBSTKC6psE9ywpyBVOYk8M/edit?usp=sharing)
+
+Main Model        |      Updated Model
+:................:|:................:
+![](https://github.com/Ijeoma-Offor/oshiwe/blob/main/FB_IMG_1723720250124.jpg) | ![](https://github.com/Ijeoma-Offor/oshiwe/blob/main/FB_IMG_1723720250124.jpg)
